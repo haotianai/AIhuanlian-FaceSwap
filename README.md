@@ -34,9 +34,9 @@
 👍Ai换脸认准官方昊天，谨防盗版诈骗
 
 联系方式：
-官方频道1：https://t.me/haotianai
-官方频道2：https://t.me/AIHL88
-演示案例频道：https://t.me/haotianai1
-官方客服美美:  https://t.me/haotianai6
-官方客服乐乐: https://t.me/haotianai7
-官方客服阿稳: https://t.me/haotianai8
+
+官方频道：https://t.me/haotianai
+
+官方客服:  https://t.me/haotianai_kf
+
+
